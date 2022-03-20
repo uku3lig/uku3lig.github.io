@@ -1,2 +1,0 @@
-# uku
-omg uku website
