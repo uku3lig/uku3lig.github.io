@@ -1,2 +1,2 @@
-# uku3lig.github.io
+# uku
 omg uku website
